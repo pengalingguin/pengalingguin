@@ -1,0 +1,1 @@
+https://cdn.discordapp.com/attachments/1464949596148207805/1497099294421811290/Copy_of_New_board.png?ex=69ec49de&is=69eaf85e&hm=61017e7c12ad31ab21d88120902bf91ad4e73157bd81db41e1c85df19fe6be89&
